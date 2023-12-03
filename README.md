@@ -1,4 +1,4 @@
 - Hi I'm barbieprogamer
 - Currently studying Computer Engineering
-- Enrolled in my first CS class right now!!!
+- Coding for Christ
 - Never stop slaying
